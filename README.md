@@ -1,0 +1,2 @@
+# premium-lantern-cage-001-lantern-cage-forging-glass-h
+Ever lost a custom glass dimension or misplaced a metal gauge size mid-project? Stop juggling scattered notes and reclaim your workshop's flow.  This Notion template turns your forge and glass studio into a single, organized command center. Track every material, client request, and design iteration from first spark to final polish—so you spend less
